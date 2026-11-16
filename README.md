@@ -139,4 +139,13 @@ Le premier à avoir suivi les traces d’un parcours déjà écrit. »
 Et maintenant chacun peut choisir de saisir la compréhension du carré CATAR blanc avec le trésor au bout du chemin de son libre arbitre.
 
 
+: : Catar areta tenet atera ratac : :
+Ceux qui savaient la gnose du CAT étaient CATAR.
+Ces adeptes de la belle BASTET (déesse féline) s'organisaient dans des BASTIDES.
+Ils étaient appelés BASTAR (péjorativement devenu une insulte d'infidélité) comme "le dit", dernier CATAR BELIBASTE.
+Ils avaient la connaissance du JEu du chat qui joue avec une partie de lui- même, sa queue, qu'il prend pour un serpent.
+Dans la logique de Bastet, Michel ou Georges, il faut comprendre pourquoi se couper du serpent présent Apophis, comme dans le livre "Le divin par MINOU" issu du Corpus CATAR, après 700 ans d'attente.
+
+
+
 
